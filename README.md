@@ -1,1 +1,1 @@
-Hi! I'm a piano performance and mathematics student at the University of Ottawa!! 🎵
+Hi! I study mathematics, physics, economics, and music at the University of Ottawa!! 🎵
